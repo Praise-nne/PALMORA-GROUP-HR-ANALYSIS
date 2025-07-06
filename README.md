@@ -1,0 +1,1 @@
+The Palmora group, a manufacturing company in Nigeria is dealing with issues bordering on gender inequality, the organization is seeking for the areas contributing to these issues and deal with them appropriately. 
